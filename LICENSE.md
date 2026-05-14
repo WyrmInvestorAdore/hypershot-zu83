@@ -1,4 +1,4 @@
-#  
+#  Experience hypershot like never before with hidden Scripts for hypershot, the #1 Script. Includes one-hit kill and no cooldown for unbeatable
 
 
 
